@@ -1,2 +1,3 @@
 # shooterr
-pox
+ne igrai v ety pomoiky
+
